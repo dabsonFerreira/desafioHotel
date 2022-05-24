@@ -1,0 +1,1 @@
+# resolucaoSingenta_jeitoSimples
